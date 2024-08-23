@@ -1,0 +1,9 @@
+![Screenshot 2024-08-23 144743](https://github.com/user-attachments/assets/e272c8d1-b7a5-4ba6-8fbc-f614304f299d)
+
+
+
+![Screenshot 2024-08-23 145147](https://github.com/user-attachments/assets/8c8f4546-ec4c-407f-8d1a-57858c06973b)
+
+
+
+Layout of Fashion - Yantra shopping webpage :
