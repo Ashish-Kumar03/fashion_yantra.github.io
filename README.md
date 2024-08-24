@@ -6,4 +6,11 @@
 
 
 
+![Screenshot 2024-08-24 152121](https://github.com/user-attachments/assets/7241384f-34a1-4b66-a7cc-7a061fb94094)
+
+
+
+
+
+
 Layout of Fashion - Yantra shopping webpage :
